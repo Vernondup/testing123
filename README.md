@@ -68,19 +68,10 @@ asdjagshfdljahsflj
 12
 
 
-50
-51
-52
-53
-
-student
-
-
 
 
 17
 18
 19
 20
-
 
